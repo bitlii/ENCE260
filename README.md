@@ -1,4 +1,4 @@
-**Dodgeball! (the most fun you can have sitting in front of a UC Funkit!)**
+**Dodgeball! (the most fun you can have sitting in front of a UC Funkit!)** [Grade: A]
 ---
 Author: Jackie Chen and Scott Lilly <br>
 Date started: 1st October 2020
